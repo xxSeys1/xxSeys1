@@ -15,4 +15,3 @@ Also occasionally I do other non technical stuff like listening to German HipHop
 ## What languages do I speak?
 - German
 - English
-- One of my french teachers once said that my french wasn't too bad but I think they were lying...
